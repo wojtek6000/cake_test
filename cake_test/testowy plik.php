@@ -1,1 +1,1 @@
-gfghfh
+dzien dobry bardzo
